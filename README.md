@@ -12,4 +12,4 @@
 ![Screenshot_1566475030](https://user-images.githubusercontent.com/22419021/63512953-990ec800-c502-11e9-8592-2849709101d6.png)
 
 
-![Screenshot_1566474660](https://user-images.githubusercontent.com/22419021/63512985-af1c8880-c502-11e9-817c-07daaf5f0527.png)
+![Screenshot_1566475310](https://user-images.githubusercontent.com/22419021/63513126-01f64000-c503-11e9-8972-0994eab773b9.png)
